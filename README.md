@@ -1,0 +1,1 @@
+# novograd2030.github.io
